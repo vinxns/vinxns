@@ -1,7 +1,7 @@
 boas vindas ao meu perfil🎶🐱‍👤
 meu nome é vitoria cardoso
 
-i love gato(se você nõ gosta saia da minha ferente)😃
+𝐼 𝓁𝑜𝓋𝑒 𝑔𝒶𝓉𝑜𝓈 (𝓈𝑒 𝓋𝑜𝒸ê 𝓃ã𝑜 𝑔𝑜𝓈𝓉𝒶 𝓈𝒶𝒾𝒶 𝒹𝒶𝓆𝓊𝒾)
 ![image](https://github.com/vinxns/vinxns/assets/171056177/cadd9457-fd23-4093-bb80-29c1c24eff17)
 
 Pãѳ дё ѫїгнѳ
