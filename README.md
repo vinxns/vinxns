@@ -16,8 +16,9 @@ voce pode entrar em contato comigo
 
 0000111383948xsp@al.educacao.sp.gov.br
 
+se você veio curiar perdeu seu tempo
 
-se você veio curiar perdeuseu tempo![image](https://github.com/vinxns/vinxns/assets/171056177/06e859ab-cb3c-4418-8486-077de471598a)
+![image](https://github.com/vinxns/vinxns/assets/171056177/06e859ab-cb3c-4418-8486-077de471598a)
 
 
 
