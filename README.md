@@ -1,6 +1,8 @@
 boas vindas ao meu perfil🎶🐱‍👤
 meu nome é vitoria cardoso
 
+ilove gato(se você nõ gosta saia d
+
 
 estou estudando java
 
