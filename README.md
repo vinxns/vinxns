@@ -4,8 +4,7 @@ meu nome é vitoria cardoso
 i love gato(se você nõ gosta saia da minha ferente)😃
 ![image](https://github.com/vinxns/vinxns/assets/171056177/cadd9457-fd23-4093-bb80-29c1c24eff17)
 
-estou estudando java
-
+[color=#blue]Azul[/color]Eu to estudando carai
 estou estudando alura
 utiliza javaScript
 
