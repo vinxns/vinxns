@@ -12,7 +12,7 @@ utiliza javaScript
 
 
 
-voce pode entrar em contato comigo
+𝓿𝓸𝓬ê 𝓹𝓸𝓭𝓮 𝓮𝓷𝓽𝓻𝓪𝓻 𝓮𝓶 𝓬𝓸𝓷𝓽𝓪𝓽𝓸 𝓬𝓸𝓶𝓲𝓰𝓸
 
 0000111383948xsp@al.educacao.sp.gov.br
 
