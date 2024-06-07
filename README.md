@@ -17,5 +17,5 @@ utiliza javaScript
 
 `✵•.¸,✵°✵.｡.✰ 𝕤𝕖 𝕧𝕠𝕔ê 𝕧𝕖𝕚𝕠 𝕔𝕦𝕣𝕚𝕒𝕣 𝕡𝕖𝕣𝕕𝕖𝕦 𝕤𝕖𝕦 𝕥𝕖𝕞𝕡𝕠 ✰.｡.✵°✵,¸.•✵´
 
-![image](https://github.com/vinxns/vinxns/assets/171056177/c8344624-c4ce-4b77-aa3f-74ddb55e1795)
+![image](https://github.com/vinxns/vinxns/assets/171056177/6daf440d-f157-4a2d-8f91-b937f60c2486)
 
