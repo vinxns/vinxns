@@ -17,6 +17,6 @@ utiliza javaScript
 
 `✵•.¸,✵°✵.｡.✰ 𝕤𝕖 𝕧𝕠𝕔ê 𝕧𝕖𝕚𝕠 𝕔𝕦𝕣𝕚𝕒𝕣 𝕡𝕖𝕣𝕕𝕖𝕦 𝕤𝕖𝕦 𝕥𝕖𝕞𝕡𝕠 ✰.｡.✵°✵,¸.•✵´
 
-https://tenor.com/bDH58.gif
+<div class="tenor-gif-embed" data-postid="21818294" data-share-method="host" data-aspect-ratio="1.36752" data-width="100%"><a href="https://tenor.com/view/loona-chuu-gif-21818294">Loona Chuu GIF</a>from <a href="https://tenor.com/search/loona+chuu-gifs">Loona Chuu GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
 
 
